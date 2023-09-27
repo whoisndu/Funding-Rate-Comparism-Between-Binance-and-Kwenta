@@ -1,1 +1,1 @@
-# Funding-Rate-Comparism-Between-Binance-and-Kwenta
+# Funding Rate Comparism Between Binance and Kwenta
